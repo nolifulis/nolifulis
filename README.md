@@ -8,7 +8,7 @@
                   
              ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-  If you have read my dni's, were good. My name is Dusky and that's probably the only thing i will say about identity. HUGE DoubleFedora shipper and GuestNoob, if you do not like these ships (especially doublefedora) please, don't start a issue about it, it's not your bussines if you dislike it (Yes, ''Leviathan You are so cute C+H'' i know you hate the ship, you don't have to come at random people and scream at them for liking something you don't.). I am multifandom, specially on my X's post's, as i often do skits, fanarts and small animations, this may incluse your fandom such as : Forsaken, roblox admins, minecraft arg's, sfawdde, AReGect, Speedrunner ARG, Eni's highschool AU, Non-Forsaken AU's, Regretevator, Meeleniacs, etc.
+  If you have read my dni's, were good. My name is Dusky and that's probably the only thing i will say about identity. HUGE DoubleFedora shipper and GuestNoob, if you do not like these ships (especially doublefedora) please, don't start a issue about it, it's not your bussines if you dislike it (Yes, ''Leviathan You are so cute C+H'' i know you hate the ship, you don't have to come at random people and scream at them for liking something you don't.). I am multifandom, specially on my X's post's, as i often do skits, fanarts and small animations, this may include your fandom such as : Forsaken, roblox admins, minecraft arg's, sfawdde, AReGect, Speedrunner ARG, Eni's highschool AU, Non-Forsaken AU's, Regretevator, Meeleniacs, etc.
 
 - *My pronouns - She | Her
 - *Looking for help for - Art tips
