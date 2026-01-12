@@ -8,7 +8,7 @@
                   
              ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-  If you have read my dni's, were good. My name is Dusky and that's probably the only thing i will say about identity. HUGE DoubleFedora shipper and GuestNoob, if you do not like these ships (especially doublefedora) please, don't start a issue about it, it's not your bussines if you dislike it (Yes, ''Leviathan You are so cute C+H'' or ''el mascapito {🍕+🎲} ''  i know you hate the ship, you don't have to come at random people and scream at them for liking something you don't and say Paycheck is better, stay silent.). I am multifandom, specially on my X's post's, as i often do skits, fanarts and small animations, this may include your fandom such as : Forsaken, roblox admins, minecraft arg's, sfawdde, AReGect, Speedrunner ARG, Eni's highschool AU, Non-Forsaken AU's, Regretevator, Meeleniacs, etc.
+  If you have read my dni's, were good. My name is Dusky and that's probably the only thing i will say about identity. HUGE DoubleFedora shipper and GuestNoob, if you do not like these ships (especially doublefedora) please, don't start a issue about it, it's not your bussines if you dislike it (Yes, ''Leviathan You are so cute C+H'' or ''el mascapito {🍕+🎲} ''  i know you hate the ship, you don't have to come at random people and scream at them for liking something you don't and say Paycheck is better, stay silent.). I am multifandom, specially on my X's post's, as i often do skits, fanarts and small animations, this may include your fandom such as : Forsaken, roblox admins, minecraft arg's, sfawtde, AReGect, Speedrunner ARG, Eni's highschool AU, Non-Forsaken AU's, Regretevator, Meeleniacs, etc.
 
 - *My pronouns - She | Her
 - *Looking for help for - Art tips
@@ -33,6 +33,10 @@ Im mostly afk or offline, if i am online, i am on menu making any cosplay i like
 - 4 - I mostly talk cold or robotic, keep in mind that.
 - 5 - I use # on my skins, they are permanent.
 
+DNI (this is all on my sp): PoisonBurger shippers / pr0shipper / incest / pdf / racist / dramatics / weird people / EXTREME gooner 
+
+I will like you if you are - Kind / friendly / hostile over small topics / share my same interest (or differents) / respectful / Calm / patient / Funny
+I WON'T like you if you are - Problematic / Dramatic / Complains over small things / Yumeshipper / Darkshipper / Weirdo / Child lover / Proshipper / steal a brainrot player (srry) / EXTREME roblox gooner
 
               ℳᎩ ⲊᎢᎡᎪᎳ⅌ᎪᏀᎬ
 
