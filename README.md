@@ -51,3 +51,10 @@ I WON'T like you if you are - Problematic / Dramatic / Complains over small thin
               ℳᎩ ⲊᎢᎡᎪᎳ⅌ᎪᏀᎬ
 
  -  https://bbbbsdiybtww.straw.page
+
+   some of my art!!
+
+   ![appleee](https://github.com/user-attachments/assets/8a71fe37-a095-4982-a291-78834753512c)
+![tyuru](https://github.com/user-attachments/assets/59113408-9318-4c2d-9bda-c3d077991d91)
+
+im not showing all, go to my twitter
