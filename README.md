@@ -13,14 +13,14 @@
 - *My pronouns - She | Her
 - *Looking for help for - Art tips
 - *Ask me about - My interests and mental stability lolz
-- *FF - I don't appreciate nsfw art, but suggestive is ok for me.
+- *FF - I don't want weird people here, darkships or proships are not of my interest. (ONLY NSFW ADULT CONTENT.)
 - *I am an artist on X and tiktok, feel free to support me or use my strawpage for requests :3
 
             ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
                 SOCIALS AND ART
             ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-If you come from twt and pressed on my github, hi! im also an artist and im present on tiktok and twitter, there is no other socials atm. I do not wish for my oc's and designs to be traced or replicated in any way. My art is sfw, slightly suggestive but won't be nsfw for now. I DON'T DO COMMS sadly, as im not familiar with money transactions and my own money.
+If you come from twt and pressed on my github, hi! im also an artist and im present on tiktok and twitter, there is no other socials atm. I do not wish for my oc's and designs to be traced or replicated in any way. My art is sfw/NSFW (+18) I'll block if ur weird. I DON'T DO COMMS sadly, as im not familiar with money transactions and my own money.
 
 My TT: https://www.tiktok.com/@es_valex
 My X/TWT: https://x.com/Dusky_Shadow01
