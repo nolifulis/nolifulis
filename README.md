@@ -20,7 +20,7 @@
                 SOCIALS AND ART
             ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-If you come from twt and pressed on my github, hi! im also an artist and im present on tiktok and twitter, there is no other socials atm. I do not wish for my oc's and designs to be traced or replicated in any way. My art is sfw/NSFW (+18) I'll block if ur weird. I DON'T DO COMMS sadly, as im not familiar with money transactions and my own money.
+If you come from twt and pressed on my github, hi! im also an artist and im present on tiktok and twitter, there is no other socials atm. I do not wish for my oc's and designs to be traced or replicated in any way. My art is sfw/suggestive, I'll block if ur weird. I DON'T DO COMMS sadly, as im not familiar with money transactions and my own money.
 
 My TT: https://www.tiktok.com/@es_valex
 My X/TWT: https://x.com/Dusky_Shadow01
@@ -56,5 +56,6 @@ I WON'T like you if you are - Problematic / Dramatic / Complains over small thin
 
    ![appleee](https://github.com/user-attachments/assets/8a71fe37-a095-4982-a291-78834753512c)
 ![tyuru](https://github.com/user-attachments/assets/59113408-9318-4c2d-9bda-c3d077991d91)
+https://x.com/i/status/2053893458335535419
 
 im not showing all, go to my twitter
